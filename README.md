@@ -9,11 +9,14 @@ Which departments are growing or struggling?
 Cool Things You’ll Find Here:
 ✔ Who works here?
 Nearly 75% of employees work remotely—big shift from traditional offices!
+
 Gender split: ~9.3K men, ~8.5K women, and a small but important non-conforming group (500).
 The largest age group? 31–40-year-olds (5,100 employees).
+
 ✔ Who’s staying (or leaving)?
 Average employee sticks around for 8 years—pretty loyal!
 But turnover rates show some departments might need better retention strategies.
+
 ✔ Hiring wins:
 Some teams saw hiring spikes (up to 96% growth!), showing where recruitment nailed it.
 
