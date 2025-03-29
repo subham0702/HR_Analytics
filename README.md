@@ -9,6 +9,7 @@ Is our workforce diverse enough?
 Which departments are growing or struggling?
 
 Cool Things You’ll Find Here:
+
 ✔ Who works here?
 Nearly 75% of employees work remotely—big shift from traditional offices!
 
